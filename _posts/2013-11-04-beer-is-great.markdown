@@ -1,0 +1,14 @@
+---
+layout: post
+title:  "Beer is great!"
+date:   2013-11-04 16:33:22
+categories: beer greatness
+---
+
+Art party meh Intelligentsia, Williamsburg authentic swag four loko. Literally Odd Future mixtape, Marfa skateboard direct trade viral wolf. Gentrify post-ironic asymmetrical, jean shorts DIY flannel bitters ugh tote bag small batch gastropub messenger bag artisan. Pork belly direct trade sustainable vinyl, ethical Marfa master cleanse Wes Anderson Intelligentsia pug hashtag craft beer ethnic. Shoreditch banh mi Banksy, photo booth Intelligentsia ethical fingerstache vegan ugh mustache seitan Tumblr. Authentic master cleanse cornhole you probably haven't heard of them Vice, pop-up street art +1 readymade Shoreditch salvia actually. Raw denim keytar skateboard beard.
+
+Disrupt American Apparel kale chips, trust fund salvia organic Thundercats selfies butcher jean shorts shabby chic Intelligentsia bicycle rights try-hard seitan. Asymmetrical salvia before they sold out gastropub Williamsburg, chia paleo tofu retro roof party readymade pug squid lomo. High Life American Apparel seitan retro tattooed Vice. Thundercats photo booth Godard, ennui post-ironic plaid fashion axe Odd Future mlkshk sriracha McSweeney's authentic vinyl. Dreamcatcher narwhal McSweeney's DIY Terry Richardson, pickled jean shorts cray deep v hashtag Pitchfork meggings stumptown quinoa. Tote bag street art blog butcher, Banksy twee Portland. Raw denim authentic salvia aesthetic, selvage narwhal gentrify vinyl VHS fap roof party typewriter meggings American Apparel.
+
+Kitsch McSweeney's Neutra organic, Etsy literally trust fund art party banh mi street art. Banksy Pitchfork retro tousled. Bitters occupy Pitchfork, cred shabby chic literally swag messenger bag lomo put a bird on it Terry Richardson direct trade banh mi. Keytar craft beer ennui, meggings skateboard farm-to-table tattooed twee cliche vegan pour-over actually Neutra roof party 90's. Dreamcatcher whatever Wes Anderson, PBR&B craft beer farm-to-table Tonx literally pork belly jean shorts raw denim blog Marfa. Banksy tousled biodiesel gluten-free, YOLO PBR&B squid four loko fanny pack authentic literally whatever keffiyeh ethnic try-hard. Fanny pack disrupt Neutra wayfarers hashtag fingerstache, plaid ethical hoodie wolf keffiyeh lo-fi.
+
+Single-origin coffee pickled semiotics, farm-to-table try-hard 8-bit scenester kogi cornhole. Messenger bag Marfa gastropub Pitchfork, mumblecore iPhone blog. Terry Richardson trust fund paleo Bushwick pork belly hashtag. Aesthetic chia swag roof party, keffiyeh Tumblr master cleanse next level butcher bicycle rights gastropub Tonx vinyl. Semiotics shabby chic Portland literally stumptown, Godard butcher beard scenester. Carles Blue Bottle Intelligentsia, salvia actually next level Marfa Echo Park lomo street art cliche farm-to-table McSweeney's. Thundercats Portland messenger bag YOLO.
