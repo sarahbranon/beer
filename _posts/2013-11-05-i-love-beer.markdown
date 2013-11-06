@@ -1,7 +1,6 @@
 ---
 layout: post
 title:  "I love beer."
-date:   2013-11-05 16:33:22
 categories: beer love
 ---
 

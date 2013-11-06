@@ -1,7 +1,6 @@
 ---
 layout: post
 title:  "Beer is great!"
-date:   2013-11-04 16:33:22
 categories: beer greatness
 ---
 
